@@ -5,3 +5,5 @@ balck and white game wiht all hand sketched characters
 colours added once progressed.
 
 might change everything lets see.
+
+maybe i will make a game on the book The Alchemist...?
